@@ -1,4 +1,4 @@
-# John Doe
+# Ibragimov Suleyman
 
 Email: ibragimovsuleiman14@gmail.com
 Phone:   +998-97-457-65-62
